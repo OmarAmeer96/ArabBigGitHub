@@ -5,18 +5,11 @@ Files will be uploaded as I finish each video
 
 ---
 
-#### **My YouTube Channel**
-
-[Big Data بالعربي](https://www.youtube.com/channel/UCFEnFy6vRzxYXslnY6mEweQ)
-
 #### My Linkedin Profile
 
-[Ahmed Sami](https://www.linkedin.com/in/ahmed-sami-a173138/)
+[Omr Ameer](https://www.linkedin.com/in/omar-ameer-126b41231/)
 
 ---
 
----
-
-My Email Addresses  
-<ahmed.sami@yahoo.com>  
-<ahmed.samy@gmail.com>
+My Email Address
+<omar.ameer244@gmail.com>
